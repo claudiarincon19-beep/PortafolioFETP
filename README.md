@@ -2,7 +2,7 @@
 
 Soy epidemióloga, bacterióloga, magíster en Salud Pública y epidemióloga de campo del programa FETP Colombia. Actualmente curso el Doctorado en Medicina Tropical en la Universidad de Cartagena.
 
-Mi trayectoria abarca la vigilancia territorial en Casanare y el liderazgo de equipos en el Instituto Nacional de Salud de Colombia, donde fui subdirectora técnica de Prevención, Vigilancia y Control en Salud Pública. Trabajo con comunidades y equipos de salud para detectar riesgos, investigar brotes y convertir el análisis epidemiológico en acciones de prevención y control.
+Mi trayectoria abarca la vigilancia epidemiológica territorial y el liderazgo de equipos en el Instituto Nacional de Salud de Colombia, donde fui subdirectora técnica de Prevención, Vigilancia y Control en Salud Pública. Trabajo con comunidades y equipos de salud para detectar riesgos, investigar brotes y convertir el análisis epidemiológico en acciones de prevención y control.
 
 Este portafolio reúne servicios de consultoría para autoridades sanitarias, organizaciones de cooperación y equipos de investigación.
 
